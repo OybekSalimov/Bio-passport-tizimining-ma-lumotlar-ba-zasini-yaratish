@@ -1,0 +1,1 @@
+# Bio-passport-tizimining-ma-lumotlar-ba-zasini-yaratish
